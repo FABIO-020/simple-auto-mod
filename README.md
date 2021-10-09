@@ -1,3 +1,3 @@
-# simple-auto-mod
+# KING SIR
 
-Made by charweee codes: https://www.youtube.com/channel/UCNiYETS-eYa-7twxV-BDH8w Join the discord: https://discord.gg/Kq5DpYRRtK
+SUBSCRIBE: https://youtube.com/channel/UCm0kKxjGyvcaFEcOz0DgkVg
